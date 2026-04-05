@@ -74,8 +74,8 @@ More projects, better designs, and advanced features coming soon 🚀
 ## 📬 Connect With Me
 
 - GitHub: https://github.com/aayizahmed  
-- LinkedIn: (add your link)  
-- Instagram: (optional)
+- LinkedIn:  www.linkedin.com/in/aayiz-ahmed-3442293ab
+- Instagram: Aayxz_ahmxd
 
 ---
 
